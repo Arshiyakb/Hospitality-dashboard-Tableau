@@ -22,6 +22,9 @@ Overall insight:
 
 •	More collaboration should be done with online platform compared to direct offline to attract more customers.
 
+![image](https://user-images.githubusercontent.com/117333281/200113721-97f344e0-7802-4636-bbe9-45ecf5c807f2.png)
+
+
 ![image](https://user-images.githubusercontent.com/117333281/200113605-209f26d9-85a0-4ad4-aa7f-e1055c195ca9.png)
 
 
